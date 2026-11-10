@@ -209,4 +209,4 @@ Burnout Paradise is offered as a full free version with all features and updates
 Embark on your racing journey today! Download Burnout Paradise for free and unleash your inner speed demon!
 
 ---
-**Last updated:** 2026-11-10 17:26:58 UTC
+**Last updated:** 2026-11-10 22:46:49 UTC
